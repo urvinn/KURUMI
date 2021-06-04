@@ -1,2 +1,2 @@
 # termux-botwea
-haters make me famous
+Gunakan Dengan Bijak !
